@@ -2,7 +2,7 @@
 
 
 
-```import { Profile } from "github";
+```python import { Profile } from "github";
 Profile.set({
   name:"Shayer Mahmud Sowmik",
   age:17,
