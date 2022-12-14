@@ -8,7 +8,7 @@ I Love to do Something Exceptional Creativity with Programming in my Leisure tim
 
 
 
-Total Views:  ![Visitor Count](https://profile-counter.glitch.me/mkasomrat/count.svg)
+![Visitor Count](https://profile-counter.glitch.me/mkasomrat/count.svg)
 
 
 
