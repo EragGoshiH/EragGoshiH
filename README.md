@@ -7,8 +7,8 @@ Profile.set({
   name:"Shayer Mahmud Sowmik",
   age:17,
   occupation:"student"
-});
-```
+});```
+
 
 
 
