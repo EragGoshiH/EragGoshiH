@@ -1,4 +1,4 @@
-           ![Visitor Count](https://profile-counter.glitch.me/mkasomrat/count.svg)
+![Visitor Count](https://profile-counter.glitch.me/mkasomrat/count.svg)
 ```ruby
 import {Profile} from "Github"
 
@@ -17,4 +17,4 @@ Visit_my_website:
 mkasomrat.github.io
 ```
 
-![Visitor Count](https://profile-counter.glitch.me/mkasomrat/count.svg)
+
