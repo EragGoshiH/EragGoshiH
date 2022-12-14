@@ -2,8 +2,13 @@
 
 
 
-
-
+```import { Profile } from "github";
+Profile.set({
+  name:"Shayer Mahmud Sowmik",
+  age:17,
+  occupation:"student"
+});
+```
 
 
 
@@ -18,14 +23,14 @@
 
 
 
-#About Me
- Vhcgcckhvkv
+
  
  
-#ugugyfyf
- Hgugug
-#yfffy
-Hiigig
+ 
+
+ 
+
+
 
 
 
