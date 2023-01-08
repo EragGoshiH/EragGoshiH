@@ -14,7 +14,7 @@ Creativity with Programming in my
 Leisure time.🔰🔰🔰
 My passion is to serve the humanity……👍!")
 Visit_my_website:♻️
-mkasomrat.github.io
+www.mkasomrat.xyz
 ```
 
 
