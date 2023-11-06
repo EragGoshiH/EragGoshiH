@@ -2,8 +2,10 @@
 ```ruby
 import {Profile} from "Github"
 
-AboutMe; Profile.set("!WeLComE... 
-👋👋👋")
+AboutMe; galaxy.set("When someone calls to guidance, whoever
+follows him will have an equal reward, but
+there will be no reduction in the reward of
+those who followed." [Sahih Muslim:2678]")
 ```
 
 
