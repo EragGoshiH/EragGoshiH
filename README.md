@@ -1,8 +1,8 @@
 ![Visitor Count](https://profile-counter.glitch.me/eraggoshih/count.svg)
 ```ruby
-import {Profile} from "Github"
+import {Profile} from "Milkiway Galaxy"
 
-AboutMe; galaxy.set("When someone calls to guidance, whoever
+AboutDa'wah; Announcement.Info("When someone calls to guidance, whoever
 follows him will have an equal reward, but
 there will be no reduction in the reward of
 those who followed." [Sahih Muslim:2678]")
