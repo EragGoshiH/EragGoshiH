@@ -1,13 +1,12 @@
+# The System of Dawah by Mufti Jubaer Ahmad
 
-== The System of Dawah by Mufti Jubaer Ahmad, iErTA ==
-
-Alhamdulillah. In this lesson, we will discuss the process of invitation, inshallah. people If you want to learn something, you can learn it in different ways. For example, Can learn knowledge by going to school. Can learn through own hard work. The third method is learning through work experience. such as swimming, Cycling etc. These are the knowledge which can be learned by going to some school Can be learned, or found in any book. Rather, it is required Practical experience.
+Alhamdulillah. In this lesson, I will discuss the process of invitation, inshallah. people If you want to learn something, you can learn it in different ways. For example, Can learn knowledge by going to school. Can learn through own hard work. The third method is learning through work experience. such as swimming, Cycling etc. These are the knowledge which can be learned by going to some school Can be learned, or found in any book. Rather, it is required Practical experience.
 
 Ilm Dawat is a knowledge which is of three types knowledge is required. 1. Negrani of Ustad. 2. Practical experience. 3. Mutalaa or study. A responsible lifelong learner. For this reason, take wisdom from wherever you get it will do Rasulullah Sallallahu Alaihi Wasallam said the wisdom of the believer The believer is more entitled to the lost wealth where he will get it.
 
-The criterion of invitation is Quran and Sunnah
+# The criterion of invitation is Quran and Sunnah
 The previous Ummahs in the beginning carried out Da'wa work in the manner of their Prophet would give But later people would make some connections on their own behalf. At some point they deviated from the original path. If people always To act according to God's will, then it is necessary to send prophets wouldn't have Changing is human habit. He makes some changes. As a result Straight out of the way. For this we should be Pay attention to our work methods. If we are the Qur'an and Sunnah If you can stick to the path, hopefully, stick to the right path I can May Allah accept our hard work.
-Freedom by way of invitation
+# Freedom by way of invitation
 For a da'ee is in the course of his dawaat work freedom The Qur'an mentions many methods for calling has been The duty is to accept any one of them and give invitation can There are many things in Islam which are certain. there any Cannot be interfered with in kind. Even brainstorming is not allowed. Like praying. No one has any right to change it. But there are some things where people want to accept have the right For example, clothing is a limitation of the Shari'ah here gave He has freedom within this boundary. Clothes below the ankles can't Women cannot be likened. The clothes of non-Muslims Can't be similar etc. Freedom in the way of invitation There is Because madaus are of different types, their thoughts are also different different The method of inviting each person is also different. For example three young men of 20 years are standing. between them A highly educated person. One is a matric pass and one is uneducated The method of inviting these three people will not be the same. Thoughts of the three The invitation should be given keeping merit in mind. To everyone's humanity Be careful. Allah Subahanahu Wa Ta'ala says: "Invite to the way of your Lord with wisdom Advising well and arguing with them is preferred in the way Surely your Lord knows best about that person There is one who has gone astray from His path and He knows best Those who are on the right path.â€ (Surah Nahl: 125)
 
 Three methods are indicated in this verse. educated To discuss in the light of education in front of people. Uneducated people Speaking in front of advice. The third method is if someone disputes Argue with him in a good way. There are some people in Madhu who are calm when answered by logic gets And there are some people who are satisfied by sentimental words. In the Quran Different methods are mentioned for both. For example, to discuss emotions Allah Subahanahu Wa Ta'ala said: "O mankind! What has deceived you from your Lord." (Surah Infitar: 6)
@@ -22,11 +21,11 @@ From the above discussion it is understood that the person is responsible Knowin
 Another mindset of Madau no matter how educated Madau is Why is he a child in the teachings of Islam? A five-year-old child, for example Asking his mother, how is Amma Allah? Mother says God is great. Son says Allah is greater than father. Mother says yes, Allah is yours Bigger than father. In this way, Madau asked various surprising questions can In this case, you have to be patient like a mother and answer. to be angry won't go.
 
 For example, in a case of Bihar state in India, once an Imam Sahib He was reciting the Quran. At that time a Hindu advocate Sahib asked Imam Sahib, what are you reading? He said Quran Sharif, the word of Allah, sent by Allah from heaven. The advocate asked if Allah gave the rope from the sky sent? Imam Sahib explained well and said Dawat Gave, later the man became a Muslim.
-Constant effort
+# Constant effort
 Allah Ta'ala is steadfast for any kind of success in this world The law is that people will try their best for a certain period of time. For example two people have one bigha of land. one He worked hard to produce curry. Someone else Didn't try. Now you say who is successful among these two Will? Surely those who have worked hard will be successful. This is Allah's Rules are same for all. I want to be a Muslim, I want to be a non-Muslim Be it This is why Allah Ta'ala has made the Ambiyas work hard. Two events from the life of the Prophet (peace and blessings of Allah be upon him) are presented doing Allah Ta'ala blessed the Prophet (peace and blessings of Allah be upon him) in one night Baitul Muqddas from Makkah, then brought seven heavens. On the contrary, another incident, the Prophet, may God bless him and grant him peace, Mecca Had to migrate from Medina. Madinah is 500 kilometers from Makkah the way Allah Ta'ala wills to make this journey in one moment could But he didn't do that. Rather, God wanted me to see How much suffering can the servant endure in my path. Everyone in the world There is a certain time for things. At certain times that person is desired If you can work hard, you will be able to create a revolution in the society. Prophet May Allah bless him and grant him peace for 23 years He established an Islamic state in Medina. Rapidly, precisely In time, anyone who does any hard work is one in the society Can create a revolution. This principle is for all Muslims and non-Muslims equal
-Motion
+# Motion
 During the era of the Prophet, may Allah bless him and grant him peace, Hazrat Umar. infidel He entered his sister's room. Islam after a while He came out as a helper. It was time to enter and exit the house very short On the contrary, a person does not accept Islam in a short period of time Then there can be no change in that environment. Invited in that era Had to travel by camel for work. Now our latest Faster vehicles are available. We are in a short time with all those means I can spread the message of Islam far and wide. This is compared to that era In the era, people live in densely populated areas. This is for invitation purposes must be considered. Otherwise it is impossible to succeed.
-Permanent Sunnah
+# Permanent Sunnah
 After the Prophet sallallaahu alayhi wa sallam received prophethood, the life 23 years, in the work of conveying the message of Allah to the servants of Allah spent This invitation was done by the Prophet, may God bless him and grant him peace wrong The greatest Sunnah of the Messenger of Allah. Satan is one of us It created the idea that the Prophet, may God bless him and grant him peace, Worked as da'wat in Makkah, and waged Jihad in Madinah. this A devil's whisper. What about the Prophet (peace be upon him)? Was sent to war? never So why did he fight? The purpose of war is to eliminate sedition, to remove obstacles to the work of Da'wa to do.
 The Prophet, may God bless him and grant him peace, was a prophet for 23 years. such It is not that he was a Messenger in Makkah life, and a Messenger in Madani life was not (Nauzubillah).
 Prophet sallallaahu alayhi wasallam spent his whole life in dawa work spent But we do not like this Sunnah of the Prophet. Because it is a heavy Sunnah. We need light Sunnah. For example, who uses perfumes, eats sweets, etc. Such is our Sunnah I like it very much. But the important Sunnah is disliked by us. what is it Atteba, obedience to the Prophet ï·º? no never Leaving the important Sunnah, what kind of act on minor Sunnah success Emphasis on the Sunnah which is the most important should be given.
@@ -60,17 +59,17 @@ A few days ago, one of our students invited a Hindu man While reciting verses of
 Now the question is, which verses are recited in front of Madu do?
 The answer is, the entire Quran is guidance. But seeing the condition of Madau After that read the verses accordingly. #Surah Maryam by Jafar Ibn Abi Talib at the court of Najjashir Recited and heard.
 
-# The name of Madau is mentioned at the end of the verse of Makki Surah. such as Ya'lamun, Yaqilun, Yata Zakkarun, Yata Dabbarun. etc. these Verses can be used.
+The name of Madau is mentioned at the end of the verse of Makki Surah. such as Ya'lamun, Yaqilun, Yata Zakkarun, Yata Dabbarun. etc. these Verses can be used.
 In the Quran, the word verse is used in two senses. 1. Allah's side The Quran revealed from 2. The signs of Allah are like the sky Earth, moon-sun etc.
 
-# Ambiya A. Through its morals, people became Muslims are we
+Ambiya A. Through its morals, people became Muslims are we
 
-# Incident of being a Jewish guest.
-Full Time
+ Incident of being a Jewish guest.
+# Full Time
 A Da'ee's life calling should not be part-time. Rather whole life should be waqf. Prophet sallallahu alaihi wasallam The Messenger of Allah used his whole life for Da'wah. he Ideal for debtors. Allah with the life of Hazrat Nuh a Taala said, O my Lord! I invited my people day and night. I gave Ambia (A.) He made this work his full time job And we made part time. This is why this work is your life Make a goal.
 Specifying some time for dawa work like eight hours etc. This is Jewish philosophy. A believer should be fifty years old Will work for a hundred years in life. Get up in the morning until twelve in the afternoon will work After a little rest again from one to nine in the night Will continue to work. The condition for this period is Isha prayer Fall asleep immediately.
 
-Conditions-
+# Conditions-
 1. Ekhlas 2. Stay away from Satan. 3. God's Proximity 4. Constant effort. 5. to decide 6. dua 7. with Madau relationship building. 8. Clearing misconceptions of known non-Muslims. 9. of the Quran Reading verses. 10. For Madura's guidance dua
 Some important principles of Da'wah and Qualities of Da'ee
 Pay attention to the location of the particular madha (invoked). Some principles are presented here, which one should follow It is very important for the defendant.
